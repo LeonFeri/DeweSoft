@@ -1,2 +1,2 @@
-# ttt
-nevem
+# Ja pa serba joza
+ki se srecamoo
